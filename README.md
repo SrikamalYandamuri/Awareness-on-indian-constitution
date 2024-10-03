@@ -1,6 +1,6 @@
 Prototype on INDIAN CONSTITUTION:-
 
-Google Sites For The Awareness Of The INDIAN CONSTITUTION: https://sites.google.com/view/indan-constitution/contact-us?authuser=0
+Google Sites For The Awareness Of The INDIAN CONSTITUTION: https://sites.google.com/view/indan-constitution
 
 To create a prototype on the Indian Constitution, include key sections like an Introduction (overview and history), Fundamental Rights (with interactive explanations), Directive Principles (guidance for state policies), Preamble (with explanations of terms), Amendments and Evolution (interactive timeline of changes), Structure of Government (diagrams for Executive, Legislature, Judiciary), and Authority (explanation of constitutional supremacy).
 
